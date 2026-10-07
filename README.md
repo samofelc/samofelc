@@ -1,5 +1,3 @@
-Živjo👋
-
 ime👾: Samo Felc
 
 starost⌛: 17
