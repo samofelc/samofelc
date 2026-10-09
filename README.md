@@ -1,4 +1,4 @@
-## Kdo sem!
+## [Kdo sem]
 
 ime👾: Samo Felc
 
@@ -10,6 +10,6 @@ kraj bivanja📍: Črnega Vrha nad Idrijo
 
 hobiji🪗: šport, harmonika
 
-## Najdeš me tu....
+## [Najdeš me tu]
 [instagram] : https://www.instagram.com/samo.felc/
 
