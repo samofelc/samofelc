@@ -7,3 +7,5 @@ kraj bivanja📍: Črnega Vrha nad Idrijo
 šola👨‍💻: Elektrotehniški in računalniški šoli Nova Gorica
 
 hobiji🪗: šport, harmonika
+
+## Najdeš me tu
