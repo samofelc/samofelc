@@ -1,3 +1,5 @@
+## Kdo sem!
+
 ime👾: Samo Felc
 
 starost⌛: 17
@@ -8,4 +10,6 @@ kraj bivanja📍: Črnega Vrha nad Idrijo
 
 hobiji🪗: šport, harmonika
 
-## Najdeš me tu
+## Najdeš me tu....
+[instagram] : https://www.instagram.com/samo.felc/
+
