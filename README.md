@@ -4,7 +4,7 @@ ime👾: Samo Felc
 
 starost⌛: 17
 
-kraj bivanja📍: Črnega Vrha nad Idrijo
+kraj bivanja📍: Črni Vrh nad Idrijo
 
 šola👨‍💻: Elektrotehniški in računalniški šoli Nova Gorica
 
