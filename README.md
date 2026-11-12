@@ -1,14 +1,14 @@
 ## [Kdo sem]
 
-### ime👾: Samo Felc
+ime👾: Samo Felc
 
-### starost⌛: 17
+starost⌛: 17
 
-### kraj bivanja📍: Črnega Vrha nad Idrijo
+kraj bivanja📍: Črnega Vrha nad Idrijo
 
-### šola👨‍💻: Elektrotehniški in računalniški šoli Nova Gorica
+šola👨‍💻: Elektrotehniški in računalniški šoli Nova Gorica
 
-### hobiji🪗: šport, harmonika
+hobiji🪗: šport, harmonika
 
 ## [Najdeš me tu]
 ### [instagram] : https://www.instagram.com/samo.felc/
