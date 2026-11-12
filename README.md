@@ -11,5 +11,5 @@ kraj bivanja📍: Črnega Vrha nad Idrijo
 hobiji🪗: šport, harmonika
 
 ## [Najdeš me tu]
-### [instagram] : https://www.instagram.com/samo.felc/
+[instagram] : https://www.instagram.com/samo.felc/
 
